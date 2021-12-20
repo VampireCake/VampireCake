@@ -1,0 +1,4 @@
+- Hi, I’m @VampireCake
+- I’m interested in using matematical principals in programming and robotics.
+- I'm pretty jung so I'm looking for every type of improvement on these topics.
+- You can reach me by my email: kozicavedad@gmail.com
