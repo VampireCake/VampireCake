@@ -1,2 +1,2 @@
 - Hi, I’m @VampireCake
-- You can reach me by my email: vedad.kozica.2006@gmail.com
+- You can reach me by email: vedad.kozica.2006@gmail.com
